@@ -1,4 +1,4 @@
-
+undr rivals Executor | auto-win + god sets the standard for rivals executors, offering auto-win and god to revolutionize your gaming experience. Designed with precision, our executor guarantees uninterrupted performance and undetectable operation. Don't settle for less—choose the executor that delivers results!
 
 
 ---
